@@ -1,5 +1,5 @@
 ### Akanbi Usman 👋
-
+### https://linkedin.com/in/usman-akanbi
 #### http://twitter.com/uuuusman
 
 
