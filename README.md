@@ -1,6 +1,6 @@
 ### Akanbi Usman 👋
 ### https://linkedin.com/in/usman-akanbi
-#### http://twitter.com/uuuusman
+### http://twitter.com/uuuusman
 
 - 📫 How to reach me 👆🏾
 - 🔭 I’m currently working at Quadrev LLC
