@@ -3,7 +3,7 @@
 ### http://twitter.com/uuuusman
 
 - 📫 How to reach me 👆🏾
-- 🔭 I’m currently working at Quadrev LLC
+- 🔭 I currently intern at Quadrev LLC
 - 🌱 I’m currently learning React
 - 👯 I'm open to frontend roles
 - 💬 Ask me about Drones
