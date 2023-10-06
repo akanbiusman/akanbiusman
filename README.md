@@ -1,4 +1,4 @@
-### Akanbi Usman 👋🏾
+### Usman 👋🏾
 ### [Linkedin](https://linkedin.com/in/usman-akanbi)
 
 - 📫 How to reach me. 👆🏾
